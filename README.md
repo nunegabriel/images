@@ -10,3 +10,5 @@
 ![for](https://user-images.githubusercontent.com/42734825/138517362-54df6047-eb9b-47f7-8ec0-a5c4c6445cc2.jpg)
 ![WORK](https://user-images.githubusercontent.com/42734825/139319316-36f88232-9950-46f1-a379-62835146daeb.png)
 ![rsz_screenshot_2021-10-28_19_33_59](https://user-images.githubusercontent.com/42734825/139323843-fbde180b-4dd1-4164-9c48-d08a092c4124.png)
+![NYTF](https://user-images.githubusercontent.com/42734825/139648770-a66ce85a-5469-4178-93c9-b02dd2d2e124.png)
+![puln](https://user-images.githubusercontent.com/42734825/139648784-c227d4c5-d660-4652-b1d6-35bc3a1f618f.jpeg)
